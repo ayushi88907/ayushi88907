@@ -6,7 +6,7 @@
 📊 **Current Focus:** Data Analytics  
 🌱 **Learning:** Data Science
 
-🔗 **Let's Connect:** [https://www.linkedin.com/in/ayushi-tiwari-937b10235?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app] | [https://github.com/ayushi88907]
+🔗 **Let's Connect:** [linkedin - https://www.linkedin.com/in/ayushi-tiwari-937b10235?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app] | [github - https://github.com/ayushi88907]
 
 ---
 ⭐ **Exploring data, one byte at a time!**
